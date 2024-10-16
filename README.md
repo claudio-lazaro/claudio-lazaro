@@ -8,7 +8,7 @@ Engenheiro de Infraestrutura/SRE com mais de 15 anos de experiência no setor de
 
 📫 **Entre em contato:** Você pode me encontrar aqui no GitHub ou me conectar no LinkedIn!
 
-⚡ **Curiosidade:**  (Goso de Ski, Jogar CS!)
+⚡ **Curiosidade:**  (Gosto de equiar, Jogar CS..)
 
 ---
 
